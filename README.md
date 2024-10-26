@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Carlox3088-dev
+- 👀 I’m interested in videogames 🎮
+- 🌱 I’m currently learning Java ☕
+- ⚡ Fun fact: I play piano 🎹
+- 💫 My favorite series is Steven Universe 🩷
